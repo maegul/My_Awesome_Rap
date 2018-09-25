@@ -47,16 +47,16 @@ Mmmph, Steve
 
 
 ## Verse 5
-<!-- My rhymes and records they don't get played -->
-<!-- Because my records and rhymes they don't get made -->
-<!-- And if you rap like me you don't get paid -->
-<!-- And if you roll like me you don't get laid -->
+My rhymes and records they don't get played
+Because my records and rhymes they don't get made
+And if you rap like me you don't get paid
+And if you roll like me you don't get laid
 
 ## Verse 6
-<!-- My rhymes are so potent that in this small segment -->
-<!-- I made all of the ladies in the area pregnant -->
-<!-- Yes, sometimes my lyrics are sexist -->
-<!-- But you lovely bitches and hoes should know I'm trying to correct this -->
+My rhymes are so potent that in this small segment
+I made all of the ladies in the area pregnant
+Yes, sometimes my lyrics are sexist
+But you lovely bitches and hoes should know I'm trying to correct this
 
 
 ## Verse 7
