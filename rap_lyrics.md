@@ -4,6 +4,8 @@ _Flight of the Conchords_
 
 Hey ... it's alter ego errol from a parallel dimension!!! Whats up!!!
 
+** GATE CRASHIN' THE PARTY! **
+
 ## Verse 1
 
 Yo ... this is ALREADY TOTALLY off the chain!!!
