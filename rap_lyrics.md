@@ -4,6 +4,9 @@ _Flight of the Conchords_
 
 
 ## Verse 1
+
+Yo ... this is gonna be off the chain!!!
+
 I'm the mother flippin' Rhymenocerous
 My beats are fat and the birds are on my back
 And I'm horny (I'm horny)
