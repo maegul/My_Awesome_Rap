@@ -5,7 +5,7 @@ _Flight of the Conchords_
 
 ## Verse 1
 
-Yo ... this is DEFINITELY NOT gonna be off the chain!!!
+Yo ... this is ALREADY TOTALLY off the chain!!!
 
 I'm the mother flippin' Rhymenocerous
 My beats are fat and the birds are on my back
