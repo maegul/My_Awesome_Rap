@@ -7,7 +7,6 @@ _Flight of the Conchords_
 
 Yo ... this is gonna be off the chain!!!
 
-I'm the mother flippin' Rhymenocerous
 My beats are fat and the birds are on my back
 And I'm horny (I'm horny)
 If you choose to proceed you will indeed concede
@@ -19,6 +18,7 @@ And subsequently procreated
 That's how it goes
 Here's the Hip-Hopapotamus
 The hip hop hippo
+<!-- I'm the mother flippin' Rhymenocerous -->
 
 ## Verse 2
 <!-- They call me the Hip-Hopapotamus -->
